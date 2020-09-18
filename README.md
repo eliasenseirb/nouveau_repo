@@ -4,3 +4,9 @@ dedans
 toutes les 
 indic.
 enfin j'espère.
+ modfds
+ fd
+ fs
+ df
+ sdd
+ 
